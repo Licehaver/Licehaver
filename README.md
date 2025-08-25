@@ -6,6 +6,7 @@ Fandoms: DELTARUNE, PJO, HWS, TMA (more im forgetting)
 
 Games ever:
 - Dredge
+- Hades
 - Hollow Knight
 - Night In The Woods
 - Portal 2
