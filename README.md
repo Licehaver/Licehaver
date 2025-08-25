@@ -2,7 +2,7 @@ THEO, HE/IT, 22
 
 Strawpage -> https://licehaver.straw.page
 
-Fandoms: PJO/HOO/TOA/TSATS, APH/HWS, HADES, DHMIS, TMA (more im forgetting)
+Fandoms: DELTARUNE, PJO/HOO/TOA/TSATS, APH/HWS, HADES, DHMIS, TMA (more im forgetting)
 
 <!---
 Licehaver/Licehaver is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
