@@ -1,8 +1,8 @@
-THEO, HE/IT, 22
+THEO, HE/IT, 23
 
 Strawpage -> https://licehaver.straw.page
 
-Fandoms: DELTARUNE, PJO, ARCANE, HWS, TMA (more im forgetting)
+Fandoms: DELTARUNE, PJO, ARCANE, HWS, TMA, WBN (more im forgetting)
 
 Games ever:
 - Dredge
